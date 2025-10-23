@@ -1,3 +1,5 @@
 > Joan Garcia Pizarro
-> 10/10/2025
+> 25/10/2025
 > Institut Mollerussa
+
+Final de la documentació
